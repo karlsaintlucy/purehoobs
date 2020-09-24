@@ -18,7 +18,7 @@ But it follows that if there are beings operating in the fifth, sixth, or _10th_
 
 As such, we have come to the unavoidable conclusion that Crab Nebula aliens are speaking to humans through the playlist of public domain songs used by **_[Hoobastank 2](https://www.twitch.tv/hoobastank2)_** on Twitch. Our testing reveals that mere _exposure_ to the tunes results in elevated levels of Higgs-Boson, the God molecule, in the bodies of study participants.
 
-![Pure Hoobs](https://github.com/karlsaintlucy/purehoobs/blob/gh-pages/hoobastank2_profilephoto_purehoobs.png)
+![Pure Hoobs](hoobastank2_profilephoto_purehoobs.png)
 
 ## Playlist
 
