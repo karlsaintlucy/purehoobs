@@ -36,7 +36,7 @@ Our agents/self-proclaimed egyptologists continue to search for the missing code
 - "**[Pluck It Up](https://www.youtube.com/watch?v=q1gQh_gJUHY&ab_channel=NoCopyrightMusic)**" by Dan Henig, courtesy of [YouTube Audio Library](https://www.youtube.com/channel/UCht8qITGkBvXKsR1Byln-wA).
 - "**[(No Copyright) Cinematic Documentary Background Music For YouTube Videos](https://www.youtube.com/watch?v=EcAX2cbsdRw&ab_channel=AShamaluevMusic)**" by AShamaluevMusic.
 - "**[On Foot](https://www.youtube.com/watch?v=_vgl7FJGzrI&ab_channel=NoCopyrightAudioLibrary)**" and "**[Medieval Astrology](https://www.youtube.com/watch?v=bH5NlwQyLpA&ab_channel=NoCopyrightAudioLibrary)**" by Underbelly & Ty Mayer, courtesy of [YouTube Audio Library](https://www.youtube.com/channel/UCht8qITGkBvXKsR1Byln-wA).
-- "**[Traces](https://prosearch.tribeofnoise.com/artists/show/35568)**" by EstherGarcia.
+- "**[Traces](https://prosearch.tribeofnoise.com/artists/show/35568/21084)**" by EstherGarcia.
 - "**[Mont Blanc](https://freemusicarchive.org/music/Podington_Bear/Homage_Fromage/Mont_Blanc)**" by Podington Bear, courtesy of the [Free Music Archive](https://freemusicarchive.org/).
 - "**[No Copyright Background Music - Blockbuster Trailer for trailer movies](https://www.youtube.com/watch?v=iYYmLVorpNM&t=29s&ab_channel=VideoSound)**" by VideoSound.
 - "**[The Quantum Realm](https://www.youtube.com/watch?v=mROnX3Xqrq8&ab_channel=NoCopyrightAudioLibrary)**" by The Whole Other, courtesy of [YouTube Audio Library](https://www.youtube.com/channel/UCht8qITGkBvXKsR1Byln-wA).
